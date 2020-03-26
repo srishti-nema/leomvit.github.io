@@ -28,8 +28,14 @@ were rough,
 She was like a wild flower remember,too gentle for the world.  
 However, she was the storm,  
 if only they care to understand her enough.   
+turning them into art. 
+She's like a fire fly they said  
+and loved to watch her glow,  
+If only they'd come closer,  
+they'd realise that she was a galaxy,  
+and could light up the world on her own. 
 She could tame her the spirits,  
 they said, take cover as the winds were rough,  
 She was like a wild flower remember ,too gentle for the world.  
 However, she was the storm,  
-if only they care to understand her enough.
+if only they care to understand her enough. 
